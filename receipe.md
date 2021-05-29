@@ -1,0 +1,1 @@
+Take a glass filled with water. Add sugar, salt, lemon, mint leaves given accordinly. Mix it well and add ice cubes. here, your delicious lemonade is ready to drink.
